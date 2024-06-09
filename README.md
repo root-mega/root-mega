@@ -1,1 +1,6 @@
-[![trophy](https://github-profile-trophy.vercel.app/?username=root-mega)](https://github.com/ryo-ma/github-profile-trophy)
+reverse engineer made of paper
+
+# main targets:
+Genshin Impact
+Honkai: Star Rail
+**you.**
