@@ -1,6 +1,3 @@
-reverse engineer made of paper
+what you looking for? lol
 
-# main targets:
-Genshin Impact,
-Honkai: Star Rail,
-**you.**
+discord.gg/xiaops
