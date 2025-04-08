@@ -1,3 +1,6 @@
-what you looking for? lol
+my discord accounts are
 
-discord.gg/xiaops
+.git_.
+hk4ed
+
+other accounts might be impersonating me
